@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @laptoppersonishere
+- 👋 Hi, I’m a Magician
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding
 
